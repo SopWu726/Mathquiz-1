@@ -1,1 +1,0 @@
-# Mathquiz-1
